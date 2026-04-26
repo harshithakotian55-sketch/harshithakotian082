@@ -1,1 +1,1 @@
-mini project output link :
+mini project output link : https://github.com/harshithakotian55-sketch/harshithakotian082/blob/mini_project_College_Fee_Payment_System/miniproject1.png and 
